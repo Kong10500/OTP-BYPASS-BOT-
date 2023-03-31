@@ -1,31 +1,46 @@
-Bypass OTP For Worldwide  🧐 
+bypass OTP for worldwide  🧐 
 
 Bank's - 3D - Wallet - Crypto - Shopping - Working for all services
 
 📶   https://bypassbot.com  🛒🛒
 
-🛒 1Day To USA/Canada $25☑️
+🛒 1-Day To USA/Canada $25☑️
 
-🛒 1Day To Worldwide  $40☑️
+🛒 1-Day To Worldwide  $40☑️
 
-🛒 1Week To USA/Canada $75☑️
+🛒 1-Week To USA/Canada $75☑️
 
-🛒 1Week To Worldwide $125☑️
+🛒 1-Week To Worldwide $125☑️
 
-🛒 1Month To USA/Canada $150☑️
+🛒 1-Month To USA/Canada $150☑️
 
-🛒 1Month To Worldwide  $300☑️
+🛒 1-Month To Worldwide  $300☑️
 
-🛒 2Month To USA/Canada $250☑️
+🛒 2-Month To USA/Canada $250☑️
 
-🛒 2Month To Worldwide  $400☑️
+🛒 2-Month To Worldwide  $400☑️
+
+============================
+
+🛒 Prv8 Caller ID  $25 ☑️
+
+🛒 Daily private server  $100☑️
 
 🛒 Lifetime Membership $1000 ☑️
 
+============================
+
+🛒 Reseller Weekly To USA/CA 200$ ☑️
+
+🛒 Reseller Monthly To USA/CA 350$ ☑️
+
+🛒 Reseller Weekly To Worldwide 350$☑️
+
+🛒 Reseller Monthly To Worldwide 500$ ☑️
+
 📲📱 How to use and proof bot working 📲📱
 
-🎥 https://youtu.be/AVPsnoKones 🎥
+🎥 https://bypassbot.com/use.mp4 🎥
 
 Support : https://t.me/bypassbot_help_bot
-
-ALl proof & Test ON
+Admin : https://t.me/Man22643
