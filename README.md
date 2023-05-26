@@ -42,5 +42,39 @@ Bank's - 3D - Wallet - Crypto - Shopping - Working for all services
 
 🎥 https://bypassbot.com/use.mp4 🎥
 
+
+============================
+============================
+
+
+Telgram Bot 
+
+Bot features ☑️
+
+Works for countries : Worldwide
+
+Languages : English - French - Spanish - Italy 
+
+Custom Script : YES ☑️
+
+Works for all ☑️
+
+( Emails - Banks - Wallets - Crypto - Works for all banks and all companies )
+============================
+🛒 1-Day To Telegram Bot USA/CA $50☑️
+
+🛒 1-Day To Telegram Bot USA-CA-UK-FR-IT-ES $90☑️
+
+🛒 1-Week To Telegram Bot USA/CA $200☑️
+
+🛒 1-Week To Telegram Bot USA-CA-UK-FR-IT-ES $350☑️
+
+🛒 1-Month To Telegram Bot USA/CA $650☑️
+
+🛒 1-Month To Telegram Bot USA-CA-UK-FR-IT-ES  $1000☑️
+
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/hL70QS9/12.png" alt="12" border="0" /></a>
+
+
 Support : https://t.me/bypassbot_help_bot
 Admin : https://t.me/Man22643
