@@ -26,7 +26,9 @@ Bank's - 3D - Wallet - Crypto - Shopping - Working for all services
 
 🛒 Daily private server  $100☑️
 
-🛒 Lifetime Membership $1000 ☑️
+🛒 Lifetime Discord Bot $1000 ☑️
+
+🛒 Lifetime Telegram Bot $5000 ☑️
 
 ============================
 
@@ -53,8 +55,6 @@ Bot features ☑️
 
 Works for countries : Worldwide
 
-Languages : English - French - Spanish - Italy 
-
 Custom Script : YES ☑️
 
 Works for all ☑️
@@ -63,15 +63,15 @@ Works for all ☑️
 ============================
 🛒 1-Day To Telegram Bot USA/CA $50☑️
 
-🛒 1-Day To Telegram Bot USA-CA-UK-FR-IT-ES $90☑️
+🛒 1-Day To Telegram Bot Worldwide $90☑️
 
 🛒 1-Week To Telegram Bot USA/CA $200☑️
 
-🛒 1-Week To Telegram Bot USA-CA-UK-FR-IT-ES $350☑️
+🛒 1-Week To Telegram Bot Worldwide $350☑️
 
 🛒 1-Month To Telegram Bot USA/CA $650☑️
 
-🛒 1-Month To Telegram Bot USA-CA-UK-FR-IT-ES  $1000☑️
+🛒 1-Month To Telegram Bot Worldwide $1000☑️
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/hL70QS9/12.png" alt="12" border="0" /></a>
 
